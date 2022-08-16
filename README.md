@@ -24,4 +24,4 @@ Genau was man vermeiden soll und was man machen soll bei Quallenstiche.
 - Ich konnte kein Gif herein tun.
 
 **Verbesserungsvorschlag**
-Ich lerne wie man ein Gif macht.
+Ich lerne wie man ein Gif macht. 
