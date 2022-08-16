@@ -17,7 +17,7 @@ Süsswasser und Urin sollte man nicht über die Wunde giessen.
 [Hier klicken für erste Hilfe](https://youtu.be/0ZuhHqgHXQE)
 
 ## Verifikation
-Genau was man vermeiden soll und machen soll bei Quallenstiche.
+Genau was man vermeiden soll und was man machen soll bei Quallenstiche.
 
 # Reflektion zum Arbeitsprozess
 + Ich habe das Bild und das Video herreingetan ohne Problem.
